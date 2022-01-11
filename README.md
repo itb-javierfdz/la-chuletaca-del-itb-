@@ -1,1 +1,1 @@
-***Apuntes SMX1***
+***Apuntes del curso SMX1 ~ 2021-22***
