@@ -1,1 +1,1 @@
-._.xd
+***Apuntes SMX1***
